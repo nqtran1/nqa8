@@ -13,9 +13,11 @@ https://upload.wikimedia.org/wikipedia/commons/thumb/b/b9/HaluskyzoZiaru.JPG/320
 https://img.webmd.com/dtmcms/live/webmd/consumer_assets/site_images/articles/health_tools/portion_sizes_slideshow/getty_rm_photo_of_fish_meal_on_small_plate.jpg
 http://www.gimmesomeoven.com/wp-content/uploads/2018/11/Chicken-Alfredo-Baked-Ziti-Recipe-9.jpg
 https://st.depositphotos.com/1779253/5140/v/600/depositphotos_51405259-stock-illustration-male-avatar-profile-picture-use.jpg
+https://dinnerthendessert.com/wp-content/uploads/2019/01/Beer-Battered-Fish.jpg
 
 Recipe creds:
 Colleen B. Smith: https://www.allrecipes.com/recipe/11758/baked-ziti-i/
+Chef John: https://www.allrecipes.com/recipe/273213/crispy-beer-batter-fish-chips/
 
 Logo creds:
 Designed with Canva: https://www.canva.com/design/DAEXIIU-PHY/v6rvT1-eLJgf9n_qm0rHGA/view?utm_content=DAEXIIU-PHY&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
